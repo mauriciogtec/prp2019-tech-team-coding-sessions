@@ -8,6 +8,7 @@ Add a joke below your name.
 ## Amy
 
 ## Kat
+Why do we tell actors to “break a leg?” Because every play has a cast.
 
 ## Annie
 
