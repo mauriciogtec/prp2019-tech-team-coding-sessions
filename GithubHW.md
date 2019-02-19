@@ -17,6 +17,10 @@ Why do we tell actors to “break a leg?” Because every play has a cast.
 What did one elephant say to the other?
 It doesn't matter, its irrelephant. 
 
+Another one:
+Someone stole my mood ring.
+I don't know how I feel about that. 
+
 ## Alisha
 What's up chicken butt
 
