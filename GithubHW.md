@@ -9,7 +9,7 @@ To get to the other side.
 
 ## Amy
 Why do golfers have two pairs of pants?
-In case they get a hole in one!
+In case they get a hole in one! :)
 
 ## Kat
 Why do we tell actors to “break a leg?” Because every play has a cast.
