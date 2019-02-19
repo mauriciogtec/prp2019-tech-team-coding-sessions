@@ -9,7 +9,7 @@ To get to the other side.
 ## Amy
 
 ## Kat
-Why do we tell actors to ìbreak a leg?î Because every play has a cast.
+Why do we tell actors to ‚Äúbreak a leg?‚Äù Because every play has a cast.
 
 ## Annie
 
@@ -19,3 +19,6 @@ It doesn't matter, its irrelephant.
 
 ## Alisha
 What's up chicken butt
+
+## Mauricio
+The instructor can have a bad joke...
